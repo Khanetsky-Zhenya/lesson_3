@@ -1,1 +1,1 @@
-# lesson_3
+https://khanetsky-zhenya.github.io/lesson_3/
